@@ -9,3 +9,6 @@ Pauvre nain **capable**! Moquer et rejeter par les autres nains. Mais il était 
 
 
  c'est une bonne histoire mais il est drole. Bravo Alexandre 
+
+ Une faim mal placé mais effectivement beaucoup de potentiel dans celle-ci.
+ L'histoire est bonne, les nains ne sont pas maltraité. Respect pour cette histoire. Merci Alexandre !!
